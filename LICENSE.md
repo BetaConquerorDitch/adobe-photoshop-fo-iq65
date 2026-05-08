@@ -1,4 +1,4 @@
-
+Adobe Photoshop for macOS advanced Preset - vector export and export presets is the best Adobe Photoshop for macOS preset, featuring vector export and export presets. Safe,
 
 
 
